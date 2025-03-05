@@ -31,7 +31,7 @@ I’ve honed my skills across a variety of essential DevOps tools and practices,
 ---
 
 ## 📬 Connect with Me
-- [LinkedIn](https://linkedin.com/in/sohaibbutt)  
+- [LinkedIn](https://www.linkedin.com/in/muhammad-sohaib-209812272/)  
 - [Medium](https://medium.com/@sohaibbutt042)  
 - [Email](mailto:sohaibbutt042@gmail.com)
 
